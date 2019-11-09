@@ -18,7 +18,7 @@ Follow Luna in her dream within a dream.
 
 ## Play game:
 
-[Lucid Luna]https://dream-o-rama.itch.io/lucid-luna
+https://dream-o-rama.itch.io/lucid-luna
 
 
 ## Authors
